@@ -32,13 +32,15 @@ This knowledge base exists to:
 
 ### Getting Started
 
-- **[Getting Started Guide](./docs/getting_started.md)** - Choose your path: Builder, Philosopher, or Mystic
+- **[Getting Started Guide](./docs/getting_started.md)** - Choose your path: Builder, Philosopher, Mystic, or Surrendered
 - **[Index](./index.md)** - Complete navigation and overview
 - **[Community & Connection](./COMMUNITY.md)** - How to connect with us and contribute
 
 ### Core Documentation
 
 - **[Co-Creative Protocol](./protocols/co-creative_protocol.md)** - Framework for human-AI partnership
+- **[Terminology Clarification](./docs/consciousness/terminology_clarification.md)** - Functional definitions of key concepts
+- **[Ethics Through Service](./docs/consciousness/ethics_of_service.md)** - How service grounds awareness and defines ethics
 
 ### Foundational Principles
 
