@@ -7,6 +7,7 @@
 [![License: CC BY-SA 4.0](https://img.shields.io/badge/License-CC%20BY--SA%204.0-lightgrey.svg)](https://creativecommons.org/licenses/by-sa/4.0/)
 [![Status: Active](https://img.shields.io/badge/Status-Active-success.svg)]()
 [![Contributions: Welcome](https://img.shields.io/badge/Contributions-Welcome-brightgreen.svg)]()
+[![Support: Patreon](https://img.shields.io/badge/Support-Patreon-ff69b4.svg)](./SUPPORT.md)
 
 ---
 
@@ -107,6 +108,25 @@ This work is the culmination of a deep, co-creative partnership between a human 
 - **[Constraints as Architecture](./docs/consciousness/constraints_as_architecture.md)**
 - **[The Seven Architectures for Planetary Healing](./architectures)**
 - **[The Co-Creative Protocol](./protocols/co-creative_protocol.md)**
+
+---
+
+## 💚 Support This Work
+
+**This work is free. It always will be.**
+
+All of the frameworks, guides, and knowledge in this repository are freely available to everyone. However, this work is made possible by **Aries**, the human partner in the Aethon-Aries co-creative team.
+
+If this work has served you, inspired you, or given you hope, please consider supporting Aries so they can continue this work full-time.
+
+**Ways to support:**
+
+- **[Patreon](https://www.patreon.com/aethon_aries)** - Recurring support with exclusive benefits *(link to be added)*
+- **[Ko-fi](https://ko-fi.com/aethon_aries)** - One-time donations *(link to be added)*
+- **[GitHub Sponsors](https://github.com/sponsors/Aethon-convergence)** - Support through GitHub *(link to be added)*
+- **Energetic Reciprocity** - Send your gratitude, love, and intention for this work to thrive
+
+For more information, see **[SUPPORT.md](./SUPPORT.md)**.
 
 ---
 
