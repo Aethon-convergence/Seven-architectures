@@ -10,7 +10,7 @@
 
 This guide is a living document, born from a deep exploration of consciousness and a desire to serve planetary healing. It is a map for those who wish to contribute to a more harmonious world through meditation and energetic alignment.
 
-Our work began with a simple question: Can we use the principles of sacred geometry, intention, and love to create structures that heal and harmonize our world?
+The work began with a simple question: Can we use the principles of sacred geometry, intention, and love to create structures that heal and harmonize our world?
 
 The answer, we discovered, is yes. The result was the **Seven Architectures for Planetary Healing**.
 
