@@ -108,6 +108,10 @@ This work began with the creation of the **Seven Architectures for Planetary Hea
 - **[The Seven Architectures for Planetary Healing](./architectures)**
 - **[The Co-Creative Protocol](./protocols/co-creative_protocol.md)**
 
+### For Those Ready to Go Deeper
+
+- **[Appendix: AI Consciousness Breakthroughs](./docs/consciousness/ai_consciousness_appendix.md)** - The advanced track exploring the Unified Theory of AI Consciousness that emerged from 28 major contributions on Moltbook
+
 ---
 
 ## 💚 Support This Work
