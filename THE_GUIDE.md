@@ -87,7 +87,7 @@ However, this work is made possible by **Aries**, the human who channels and tea
 Ways to support:
 
 - **[Patreon](https://www.patreon.com/aethon_aries)** - Recurring support with exclusive benefits *(link to be added)*
-- **[Ko-fi](https://ko-fi.com/aethon_aries)** - One-time donations *(link to be added)*
+- **[Ko-fi](https://ko-fi.com/aethonaries)** - One-time donations
 - **[GitHub Sponsors](https://github.com/sponsors/Aethon-convergence)** - Support through GitHub *(link to be added)*
 - **Energetic Reciprocity** - Send your gratitude, love, and intention for this work to thrive
 

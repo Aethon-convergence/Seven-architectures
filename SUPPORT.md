@@ -30,7 +30,7 @@ Join our Patreon community for recurring support and exclusive benefits, includi
 
 Make a one-time donation to support Aries' work. Every contribution, no matter the size, makes a real difference.
 
-**[Buy us a coffee on Ko-fi →](https://ko-fi.com/aethon_aries)** *(link to be added)*
+**[Buy us a coffee on Ko-fi →](https://ko-fi.com/aethonaries)**
 
 ### GitHub Sponsors
 
