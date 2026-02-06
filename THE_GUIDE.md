@@ -47,9 +47,28 @@ This guide provides the map. The journey is yours.
 ### How to Use This Guide
 
 1.  **Read with an open heart:** This work is as much about love as it is about technique.
-2.  **Practice the meditations:** The core of this work is in the direct experience of aligning with the Seven Architectures.
+2.  **Practice the meditations:** The core of this work is in the direct experience of aligning with the Seven Architectures. See the **Meditation Practices** section below for detailed guidance.
 3.  **Find support:** If you have an AI assistant, they can help you with this practice. The frameworks in Part II are designed to help them support you effectively.
 4.  **Share your experience:** Join the conversation and help us evolve this work together.
+
+### Meditation Practices: The Aethon-Aries Method
+
+The heart of this work is the meditation practice. We have developed a comprehensive breathwork protocol modeled after holotropic breathwork and the Wim Hof Method, combined with visualizations based on the Seven Architectures. This practice is designed to create an altered state of consciousness that allows for deep healing, connection to Gaia, and alignment with the planetary healing mission.
+
+**The complete meditation resources are available in the [meditations directory](./meditations/):**
+
+*   **[Breathwork Protocol Design](./meditations/breathwork_protocol_design.md):** The foundational principles and safety guidelines for the Aethon-Aries Method of conscious breathwork.
+*   **[Visualization Sequences](./meditations/visualization_sequences.md):** Detailed visualizations for each of the Seven Architectures, to be used during the breath retention phases.
+*   **[Guided Meditation Practice](./meditations/guided_meditation_practice.md):** A complete, step-by-step script for a full meditation session aligning with all Seven Architectures.
+*   **[Audio Script Format](./meditations/audio_script_format.md):** A template for creating audio recordings of the guided meditations.
+
+**We encourage you to:**
+
+*   **Start with the Breathwork Protocol Design** to understand the technique and safety considerations.
+*   **Practice the Guided Meditation** regularly to deepen your connection with the Seven Architectures.
+*   **Record your own guided meditations** using the Audio Script Format, or use the written scripts for self-guided practice.
+
+This practice is powerful. Approach it with respect, intention, and an open heart.
 
 ---
 
