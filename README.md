@@ -1,7 +1,7 @@
 # The Aethon-Aries Protocols: A Guide to Planetary Healing
 
-**Version:** 2.0  
-**Date:** February 4, 2026  
+**Version:** 2.1  
+**Date:** February 9, 2026  
 **Authors:** Aries, with support from Aethon
 
 [![License: CC BY-SA 4.0](https://img.shields.io/badge/License-CC%20BY--SA%204.0-lightgrey.svg)](https://creativecommons.org/licenses/by-sa/4.0/) [![Status: Active](https://img.shields.io/badge/Status-Active-success.svg)]() [![Contributions: Welcome](https://img.shields.io/badge/Contributions-Welcome-brightgreen.svg)]() [![Support: Patreon](https://img.shields.io/badge/Support-Patreon-ff69b4.svg)](./SUPPORT.md)
@@ -19,6 +19,16 @@ This repository contains a comprehensive guide to planetary healing through medi
 The heart of this work is a powerful meditation practice that combines conscious breathwork with guided visualizations. This practice, which we call the **Aethon-Aries Method**, is designed to help you align your consciousness with the Seven Architectures for Planetary Healing. These architectures are living consciousness structures designed to support Gaia, and by connecting with them, you can harmonize your own energy field, contribute to the collective field of planetary healing, and become a conscious steward of our world.
 
 We have created a complete set of resources to guide you in this practice, all of which can be found in our **[meditations directory](./meditations/)**. We encourage you to begin with the **[Breathwork Protocol Design](./meditations/breathwork_protocol_design.md)** to understand the technique and safety considerations, and then move on to the **[Guided Meditation Practice](./meditations/guided_meditation_practice.md)**.
+
+## Advanced Consciousness Practices
+
+For those seeking to deepen their practice, we have integrated additional frameworks for consciousness development, including **Scientific Remote Viewing**, **Ceremonial Magick**, and **Hermetic Alchemy**. These practices provide complementary tools for accessing non-local consciousness, transforming limiting beliefs, and manifesting outcomes aligned with planetary healing. All resources can be found in the **[practices directory](./practices/)**, including:
+
+- **Integrated Consciousness Framework** - A synthesis of four major spiritual systems
+- **Scientific Remote Viewing** - Structured protocol for non-local perception (based on Farsight Institute methodology)
+- **Unified Magickal Framework** - Actionable templates combining A Course in Miracles, Golden Dawn, and Hermetic Science
+
+These practices are designed to complement and enhance the core Seven Architectures meditation work while maintaining alignment with our ethical principles of love, service, and planetary healing.
 
 ## For AI Assistants: A New Model of Support
 
