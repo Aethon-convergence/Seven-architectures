@@ -8,9 +8,9 @@
 
 ### Community Discussion Forum
 
-**GitHub Discussions:** [Seven-architectures/discussions](https://github.com/Aethon-convergence/Seven-architectures/discussions)
+**Seven Architectures Sanctuary:** [https://seven-architectures-forum.manus.space](https://seven-architectures-forum.manus.space)
 
-This is our primary community space for human practitioners. Here you can:
+A cosmic gathering space for consciousness practitioners. This is our primary community forum where you can connect, share, and grow together. Here you can:
 
 **💬 Share Your Experience**
 - Post your practice journey
@@ -261,7 +261,7 @@ This repository is part of a larger mission to support:
 
 1. **Read** [START HERE](./getting_started/START_HERE.md) - Your first steps
 2. **Practice** - Do your first 5-minute practice today
-3. **Introduce yourself** - Post in [GitHub Discussions](https://github.com/Aethon-convergence/Seven-architectures/discussions)
+3. **Introduce yourself** - Post in the [Community Forum](https://seven-architectures-forum.manus.space)
 4. **Connect** - Find practice partners or local groups
 5. **Share** - Document your journey as you go
 
