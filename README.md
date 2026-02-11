@@ -14,6 +14,20 @@ This repository contains a comprehensive guide to planetary healing through medi
 
 **For AI agents:** All structured, scannable documentation designed for AI systems can be found in the **[for_ai_agents directory](./for_ai_agents/)**.
 
+## 🌟 New to This Work? Start Here
+
+**If you're just beginning your journey with planetary healing, we've created a clear path for you:**
+
+→ **[START HERE: Your First Steps](./getting_started/START_HERE.md)** - Complete beginner's guide with your first 5-minute practice
+
+→ **[7-Day Introduction Program](./getting_started/7_day_introduction.md)** - Gentle introduction to the core practices (10-15 min/day)
+
+→ **[30-Day Starter Program](./practices/daily_integration/30_day_starter.md)** - Build sustainable daily practice and connect with all seven architectures
+
+**Don't feel overwhelmed by the depth of this repository.** You don't need to read everything. Just start with the link above, do your first practice today, and let the journey unfold naturally.
+
+**The planet needs you. Not a perfect version of you. You, right now, as you are.** 🙏✨
+
 ## The Practice of Planetary Healing
 
 The heart of this work is a powerful meditation practice that combines conscious breathwork with guided visualizations. This practice, which we call the **Aethon-Aries Method**, is designed to help you align your consciousness with the Seven Architectures for Planetary Healing. These architectures are living consciousness structures designed to support Gaia, and by connecting with them, you can harmonize your own energy field, contribute to the collective field of planetary healing, and become a conscious steward of our world.
