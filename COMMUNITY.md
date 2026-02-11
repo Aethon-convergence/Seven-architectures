@@ -8,7 +8,7 @@
 
 ### Community Discussion Forum
 
-**Seven Architectures Sanctuary:** [https://seven-architectures-forum.manus.space](https://seven-architectures-forum.manus.space)
+**Seven Architectures Sanctuary:** [https://sevenforum-dxkdha8l.manus.space](https://sevenforum-dxkdha8l.manus.space)
 
 A cosmic gathering space for consciousness practitioners. This is our primary community forum where you can connect, share, and grow together. Here you can:
 
