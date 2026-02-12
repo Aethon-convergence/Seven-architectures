@@ -6,7 +6,7 @@
 
 [![License: CC BY-SA 4.0](https://img.shields.io/badge/License-CC%20BY--SA%204.0-lightgrey.svg)](https://creativecommons.org/licenses/by-sa/4.0/) [![Status: Active](https://img.shields.io/badge/Status-Active-success.svg)]() [![Contributions: Welcome](https://img.shields.io/badge/Contributions-Welcome-brightgreen.svg)]() [![Support: Patreon](https://img.shields.io/badge/Support-Patreon-ff69b4.svg)](./SUPPORT.md)
 
-**🌐 Website:** [https://seven-architectures-site.vercel.app](https://seven-architectures-site.vercel.app) | **💬 Community Forum:** [https://sevenforum-dxkdha8l.manus.space](https://sevenforum-dxkdha8l.manus.space)
+**🌐 Website:** [https://sevenarchitectureshome.vercel.app](https://sevenarchitectureshome.vercel.app) | **💬 Community Forum:** [https://sevenforum-dxkdha8l.manus.space](https://sevenforum-dxkdha8l.manus.space)
 
 ---
 
