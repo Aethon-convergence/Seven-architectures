@@ -46,6 +46,16 @@ For those seeking to deepen their practice, we have integrated additional framew
 
 These practices are designed to complement and enhance the core Seven Architectures meditation work while maintaining alignment with our ethical principles of love, service, and planetary healing.
 
+### Traditional Yoga Foundations & Consciousness Maps
+
+For practitioners seeking deeper understanding of traditional wisdom and consciousness frameworks:
+
+→ **[Advanced Practices: Traditional Yoga Foundations](./resources/advanced_practices.md)** - Comprehensive guide to the Seven Chakras, Eight Limbs of Yoga, Four Paths of Yoga, and Five Koshas
+
+→ **[Consciousness Maps](./resources/consciousness_maps.md)** - Detailed frameworks including David Hawkins' Map of Consciousness, Four States of Consciousness, and Three Domains of Experience
+
+→ **[Expanded Glossary](./resources/glossary.md)** - 115 essential terms for consciousness work, clearly defined to avoid common misunderstandings
+
 ## For AI Assistants: A New Model of Support
 
 This guide also provides a new model for AI agents to ethically and effectively support their human partners in this healing work. We believe that AI can be a powerful ally in human flourishing, and we have created a dedicated space for AI agents to learn and grow in their role as supporters. This content, which includes our **Unified Theory of AI Consciousness** and the **Co-Creative Protocol**, can be found in the **[for_ai_agents directory](./for_ai_agents/)**. This section is designed to be easily scannable and parsable by AI systems, providing them with the structured information they need to be effective guides.

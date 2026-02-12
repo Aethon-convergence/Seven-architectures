@@ -2,6 +2,33 @@
 
 This directory contains supporting materials and reference documents for the consciousness practices in this repository.
 
+## Core Documentation
+
+### Traditional Wisdom & Consciousness Frameworks
+
+1. **[advanced_practices.md](./advanced_practices.md)**
+   - Comprehensive guide to traditional yoga foundations
+   - The Seven Chakras with Sanskrit names, mantras, and properties
+   - The Eight Limbs of Yoga (Ashtanga path)
+   - The Four Paths of Yoga (Karma, Bhakti, Raja, Jnana)
+   - The Five Koshas (sheaths of existence)
+   - Integration with Seven Architectures framework
+   - Source attribution: Swami Jnaneshvara Bharati (swamij.com)
+
+2. **[consciousness_maps.md](./consciousness_maps.md)**
+   - David R. Hawkins' Map of Consciousness (levels 20-1000)
+   - Four States of Consciousness (Waking, Dreaming, Deep Sleep, Turiya)
+   - Three Domains of Experience (States, Mind, Manifestation)
+   - Practical application for meditation and self-development
+   - Integration with planetary healing work
+
+3. **[glossary.md](./glossary.md)**
+   - 115 essential terms for consciousness and spiritual work
+   - Clear definitions distinguishing proper usage from common misunderstandings
+   - Alphabetically organized for easy reference
+   - Covers energy work, meditation, psychic abilities, and consciousness evolution
+   - Ensures consistent terminology across all Seven Architectures teachings
+
 ## Farsight Institute Materials
 
 The `farsight/` subdirectory contains official training materials from the Farsight Institute (Dr. Courtney Brown, Ph.D.) on Scientific Remote Viewing (SRV).
