@@ -10,7 +10,7 @@ This document shows how the **64 consciousness patterns** (from the Gene Keys sy
 
 ### The Big Picture
 
-Think of consciousness like a spectrum—from fear and reactivity on one end, to love and freedom on the other. The 64 patterns are like a detailed map of this spectrum, showing 64 different ways human consciousness can express itself.
+Think of consciousness like a spectrum, from fear and reactivity on one end, to love and freedom on the other. The 64 patterns are like a detailed map of this spectrum, showing 64 different ways human consciousness can express itself.
 
 **What makes up this system:**
 - **64 archetypal patterns** based on ancient Chinese wisdom (I Ching)
@@ -28,7 +28,7 @@ Imagine each pattern like a radio dial with three stations:
 - Fear-based choices
 - Survival mode
 - Creates problems and suffering
-- *Important: Don't try to eliminate this—it transforms naturally*
+- *Important: Don't try to eliminate this, it transforms naturally*
 
 **2. Gift (The Flow State)**
 - Conscious creativity
@@ -74,7 +74,7 @@ Each of the 64 patterns comes from the I Ching, a 5,000-year-old Chinese book of
 
 **How it works:**
 - The 64 patterns form 32 pairs of opposites
-- Like yin and yang—each pair balances the other
+- Like yin and yang, each pair balances the other
 - Working with both sides creates wholeness
 - Opposites don't fight, they complete each other
 
@@ -127,7 +127,7 @@ Here's the surprising truth: You don't transform by trying to fix yourself. Tran
 
 **The Process:**
 1. **Notice** the stuck pattern (Shadow) in your life
-2. **Accept** it completely—stop fighting it
+2. **Accept** it completely, stop fighting it
 3. **Observe** without judgment
 4. **Allow** natural change to happen
 5. **Express** your gifts as they emerge
@@ -137,7 +137,7 @@ Here's the surprising truth: You don't transform by trying to fix yourself. Tran
 
 ### How Each Pattern Connects to Everything
 
-Think of each pattern as a hologram—it contains the whole picture:
+Think of each pattern as a hologram, it contains the whole picture:
 
 | Dimension | Connection |
 |-----------|------------|
@@ -153,7 +153,7 @@ Think of each pattern as a hologram—it contains the whole picture:
 
 ### The Two-Way Movement
 
-Transformation isn't a ladder you climb—it's more like a meeting point:
+Transformation isn't a ladder you climb, it's more like a meeting point:
 
 ```
     TRANSCENDENT STATE (Grace descends from above)
@@ -167,7 +167,7 @@ Transformation isn't a ladder you climb—it's more like a meeting point:
 1. **Rising:** Your acceptance lifts the Shadow to Gift level
 2. **Descending:** Grace brings Transcendent qualities down to Gift level
 
-**The Gift is where they meet**—where your human effort meets divine grace.
+**The Gift is where they meet**, where your human effort meets divine grace.
 
 ### Pattern Themes Across All 64
 
