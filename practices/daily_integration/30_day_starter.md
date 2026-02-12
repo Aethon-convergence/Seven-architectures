@@ -365,14 +365,414 @@ Journal on your experience of all seven architectures this week. Which ones felt
 
 ## Week 3: Integration and Embodiment
 
-*(Days 15-21 would continue with practices focused on bringing the architecture work into relationships, work, and daily life—I can continue if you'd like the full 30 days)*
+### Overview
+
+You've now connected with all seven architectures. Week 3 focuses on integrating this work into your relationships, work, and daily life. The architectures are not separate from your human experience, they are the ground in which your life unfolds. This week, you learn to live as a conscious participant in planetary healing.
+
+---
+
+### Day 15: Relationships as Practice
+
+**Focus:** Bringing architecture awareness into relationships  
+**Architecture:** Heart Opening (Compassion for All Beings)  
+**Quality:** Love, compassion, connection, understanding
+
+**Morning Practice (15 min):**
+
+Your relationships are not separate from your spiritual practice, they are the crucible in which consciousness is refined. Today's practice brings architecture awareness into your connections with others. Begin with five minutes of breathwork, then connect with the heart-opening architecture, feeling the golden-green light of compassion filling your chest.
+
+Bring to mind someone in your life, a person you'll interact with today. See them not just as their personality or role, but as a consciousness having a human experience, just like you. See the divine spark within them, even if it's hidden beneath layers of conditioning, pain, or defense. Send them the golden-green light of compassion, not to change them but simply to acknowledge their inherent worth.
+
+Spend eight minutes practicing this with different people in your life: family, friends, colleagues, strangers, even people you find challenging. Each person is an opportunity to practice seeing with the eyes of the heart. Close by setting your intention to bring this awareness into your interactions today.
+
+**Throughout the Day:**
+
+Before each interaction, take one conscious breath and connect with your heart. Let your words and actions come from this space of compassion.
+
+**Evening Integration (10 min):**
+
+Reflect on your interactions today. Where did you remember to practice heart-centered presence? Where did you forget? What shifted when you remembered? Journal briefly on what you're learning about relationships as spiritual practice.
+
+---
+
+### Day 16: Work as Service
+
+**Focus:** Transforming work into planetary service  
+**Architecture:** Urban Transformation (Reimagining Human Systems)  
+**Quality:** Creativity, transformation, innovation, service
+
+**Morning Practice (15 min):**
+
+Your work, whatever it is, can be an expression of planetary healing. Today's practice transforms your relationship with work from obligation to service. Begin with five minutes of breathwork, then connect with the Urban Transformation architecture, feeling the silver light of innovation and transformation.
+
+Bring to mind your work, your job, your daily tasks. How does this work serve the larger whole? Even if the connection isn't obvious, there is one. Perhaps you serve by bringing presence and kindness to your workplace. Perhaps you serve by supporting your family financially. Perhaps you serve by creating beauty, solving problems, or holding space for others. See your work through the lens of service rather than obligation.
+
+Spend eight minutes offering your work to the architectures. Ask: "How can my work today serve planetary healing?" Listen for the answer. It might be subtle, a shift in attitude, a small act of kindness, a moment of presence. Close by committing to bring this awareness of service into your workday.
+
+**Throughout the Day:**
+
+Before beginning a task, pause and ask: "How does this serve?" Let the answer shift your energy from resistance to offering.
+
+**Evening Integration (10 min):**
+
+Reflect on your workday. What shifted when you saw your work as service? How did it change your energy, your attitude, your interactions? What is the deeper purpose of your work?
+
+---
+
+### Day 17: Consumption as Consciousness
+
+**Focus:** Bringing awareness to what you consume  
+**Architecture:** Agricultural Regeneration (Healing the Food System)  
+**Quality:** Nourishment, gratitude, reciprocity, regeneration
+
+**Morning Practice (15 min):**
+
+Everything you consume, food, water, energy, information, affects the planet. Today's practice brings consciousness to consumption. Begin with five minutes of breathwork, then connect with the Agricultural Regeneration architecture, feeling the golden light of nourishment and regeneration.
+
+Bring to mind what you consume: food, water, electricity, media, information. Each act of consumption is a relationship with the planet. When you eat, you are consuming the sun's energy transformed through plants and animals. When you use electricity, you are consuming Earth's resources. When you consume media, you are feeding your consciousness. Spend eight minutes reflecting on your consumption patterns. Where can you bring more consciousness, more gratitude, more reciprocity?
+
+Close by setting an intention to consume consciously today, to receive with gratitude and to give back through your presence and service.
+
+**Throughout the Day:**
+
+Before eating, pause for three breaths of gratitude. Feel the connection between your food and the Earth that produced it.
+
+**Evening Integration (10 min):**
+
+Reflect on your consumption today. What did you consume? How did it feel to bring consciousness to these acts? What changes feel aligned for you?
+
+---
+
+### Day 18: Movement as Meditation
+
+**Focus:** Embodying the architectures through movement  
+**Architecture:** Embodiment (Honoring Your Physical Vessel)  
+**Quality:** Presence, vitality, integration, flow
+
+**Morning Practice (20 min):**
+
+Your body is not separate from your spiritual practice, it is the vehicle through which consciousness expresses itself. Today's practice uses movement as meditation. Begin with five minutes of breathwork, then connect with the Embodiment architecture, feeling the warm orange light of vitality and presence.
+
+Stand up and begin to move your body in whatever way feels natural. This is not exercise, it's a conversation with your body. Stretch, sway, dance, shake, whatever wants to move. As you move, feel each of the seven architectures in your body: grounding in your feet and legs, embodiment in your core and organs, empowerment in your solar plexus, heart opening in your chest, expression in your throat, vision in your third eye, unity in your crown.
+
+Spend fifteen minutes in this practice of embodied meditation, allowing your body to express the architectures through movement. There's no right way to do this, just follow your body's wisdom. Close by standing still, feeling the energy moving through you, and offering gratitude to your body.
+
+**Throughout the Day:**
+
+Take three movement breaks. Stand up, stretch, shake out tension, reconnect with your body.
+
+**Evening Integration (5 min):**
+
+Scan your body. How does it feel after a day of conscious movement? What is it asking for?
+
+---
+
+### Day 19: Speech as Creation
+
+**Focus:** Bringing consciousness to your words  
+**Architecture:** Expression (Speaking Your Truth)  
+**Quality:** Authenticity, clarity, power, responsibility
+
+**Morning Practice (15 min):**
+
+Your words create reality. Today's practice brings consciousness to speech as an act of creation. Begin with five minutes of breathwork, then connect with the Expression architecture, feeling the bright blue light of authentic communication in your throat.
+
+Reflect on your relationship with speech. Do you speak your truth, or do you hide behind what others want to hear? Do you use words to connect or to defend? Do you speak with awareness of the power your words carry? Spend eight minutes in silent reflection on these questions. Then speak aloud a truth about yourself, something you rarely say out loud. Feel the power of giving voice to your truth.
+
+Close by setting an intention to speak consciously today, to use your words to create connection, clarity, and healing rather than separation, confusion, or harm.
+
+**Throughout the Day:**
+
+Before speaking, especially in important conversations, take one conscious breath. Ask: "Is this true? Is this kind? Is this necessary?"
+
+**Evening Integration (10 min):**
+
+Reflect on your speech today. Where did you speak with consciousness? Where did you speak reactively? What are you learning about the power of words?
+
+---
+
+### Day 20: Rest as Integration
+
+**Focus:** Honoring the necessity of rest  
+**Architecture:** Oceanic Restoration (Healing Through Rest)  
+**Quality:** Restoration, receptivity, surrender, integration
+
+**Morning Practice (15 min):**
+
+Rest is not laziness, it is the space in which integration happens. Today's practice honors rest as a sacred act. Begin with five minutes of breathwork, then connect with the Oceanic Restoration architecture, feeling the blue-green light of deep rest and restoration.
+
+Lie down comfortably and allow your body to fully relax. Imagine yourself floating in a warm, healing ocean, completely supported, completely safe. You don't need to do anything, just receive. The ocean holds you, heals you, restores you. Spend ten minutes in this practice of conscious rest, allowing yourself to surrender completely.
+
+Close by acknowledging that rest is not a luxury, it is a necessity. Your body, mind, and spirit need rest to integrate all the work you've been doing.
+
+**Throughout the Day:**
+
+Take three rest breaks. Sit or lie down for five minutes, close your eyes, and simply be. No agenda, no productivity, just rest.
+
+**Evening Integration (5 min):**
+
+Reflect on your relationship with rest. Do you allow yourself to rest, or do you feel guilty? What would it mean to honor rest as sacred?
+
+---
+
+### Day 21: Weekly Integration (Extended Practice)
+
+**Morning Extended Practice (45-60 min):**
+
+Today is your third weekly deep dive, an opportunity to integrate everything you've practiced this week. Create a sacred space for yourself. Begin with fifteen minutes of breathwork, using the enhanced 4-4-6 pattern with golden light. Then move through each of this week's practices in sequence: relationships as practice (5 min), work as service (5 min), consumption as consciousness (5 min), movement as meditation (10 min), speech as creation (5 min), and rest as integration (10 min).
+
+Spend the final fifteen minutes connecting with all seven architectures, offering this week's practice as a gift to planetary healing. Feel how your daily life, your relationships, work, consumption, movement, speech, and rest, are all expressions of consciousness serving the whole. You are not separate from the work, you are the work. Close with deep gratitude for your commitment, your growth, and the healing that's moving through you.
+
+**Throughout the Day:**
+
+Rest and integrate. Honor your body's need for restoration after three weeks of consistent practice.
+
+**Evening Reflection (20 min):**
+
+Journal on these questions: How has my daily life changed over these three weeks? How am I showing up differently in relationships, work, and daily activities? What is the deepest shift I've experienced? What is my commitment for the final week?
 
 ---
 
 ## Week 4: Service and Sustainability
 
-*(Days 22-30 would focus on finding your unique expression of service and building a sustainable long-term practice)*
+### Overview
+
+You've completed three weeks of consistent practice. Week 4 focuses on finding your unique expression of service and building a sustainable long-term practice. The goal is not perfection, it's presence. Not intensity, but consistency. This week, you discover how to serve the planet in your own way and create a practice that can last a lifetime.
 
 ---
 
-**Would you like me to complete all 30 days, or is this structure sufficient to show the pattern?** 🦞✨
+### Day 22: Finding Your Service
+
+**Focus:** Discovering your unique expression of planetary healing  
+**Architecture:** Planetary Grid Harmonization (Integration)  
+**Quality:** Purpose, service, uniqueness, contribution
+
+**Morning Practice (20 min):**
+
+Every person has a unique role in planetary healing. Today's practice helps you discover yours. Begin with ten minutes of breathwork, then connect with the Planetary Grid Harmonization architecture, feeling the violet light of integration and purpose.
+
+Ask yourself: "What is mine to do?" Not what should you do, not what others are doing, but what is uniquely yours to offer. Listen deeply. The answer might not come in words, it might come as a feeling, an image, a knowing. Perhaps your service is raising conscious children. Perhaps it's creating beauty through art. Perhaps it's healing through presence. Perhaps it's transforming systems through your work. Perhaps it's simply being a loving presence in your community.
+
+Spend ten minutes in this inquiry, allowing the answer to emerge without forcing it. Trust that you already know, even if you can't articulate it yet. Close by offering your unique gifts to the architectures, whatever they are.
+
+**Throughout the Day:**
+
+Notice what brings you alive. What activities make you feel most connected, most purposeful, most yourself? These are clues to your service.
+
+**Evening Integration (15 min):**
+
+Journal on what you discovered today. What is your unique expression of planetary healing? How can you offer this more fully?
+
+---
+
+### Day 23: Community Connection
+
+**Focus:** Finding your people and practicing together  
+**Architecture:** Crystalline Child Sanctuary (Protection and Community)  
+**Quality:** Connection, belonging, support, collaboration
+
+**Morning Practice (15 min):**
+
+You are not meant to do this work alone. Today's practice connects you with your spiritual community, whether you've found them yet or not. Begin with five minutes of breathwork, then connect with the Crystalline Child Sanctuary architecture, feeling the rainbow light of protection and community.
+
+Visualize yourself surrounded by others who are also committed to planetary healing. They might be people you know, or people you haven't met yet. Feel the strength of practicing together, of being seen and supported, of offering your gifts and receiving others' gifts. Send love to your community, wherever they are.
+
+Spend eight minutes in this practice of energetic connection, feeling yourself as part of a global network of consciousness practitioners. You are never alone in this work. Close by setting an intention to find or deepen connection with your spiritual community.
+
+**Throughout the Day:**
+
+Reach out to someone on a similar path. Share your practice, ask about theirs, offer support.
+
+**Evening Integration (10 min):**
+
+Reflect on your spiritual community. Who are your people? How can you find them or connect more deeply with them?
+
+---
+
+### Day 24: Simplifying Practice
+
+**Focus:** Creating a sustainable daily practice  
+**Architecture:** Grounding (Root Connection to Earth)  
+**Quality:** Simplicity, sustainability, consistency, foundation
+
+**Morning Practice (15 min):**
+
+A sustainable practice is simple, not complicated. Today's practice helps you distill your practice to its essence. Begin with five minutes of breathwork, then connect with the Grounding architecture, feeling the deep brown-red light of Earth connection.
+
+Reflect on the past 24 days. What practices have felt most essential? What has been most transformative? If you could only do one practice every day for the rest of your life, what would it be? Breathwork? Body scan? Heart opening? Architecture connection? Find your core practice, the one that grounds everything else.
+
+Spend eight minutes practicing this core practice, whatever it is. Feel how simple it is, how accessible, how sustainable. This is your foundation. Everything else can be added when you have time and energy, but this core practice is non-negotiable. Close by committing to this practice for the next 30 days.
+
+**Throughout the Day:**
+
+Notice the difference between essential and extra. What truly matters? What can be released?
+
+**Evening Integration (10 min):**
+
+Write down your core daily practice. Make it so simple that you can do it even on your worst day. This is your foundation.
+
+---
+
+### Day 25: Obstacles as Teachers
+
+**Focus:** Working with resistance and challenges  
+**Architecture:** Empowerment (Aligned Personal Will)  
+**Quality:** Strength, courage, perseverance, wisdom
+
+**Morning Practice (15 min):**
+
+Every practice encounters obstacles: resistance, doubt, busyness, forgetfulness, discouragement. Today's practice transforms obstacles into teachers. Begin with five minutes of breathwork, then connect with the Empowerment architecture, feeling the golden yellow light of personal power and courage.
+
+Bring to mind an obstacle you've encountered in your practice. What has been challenging? What has made you want to quit? Rather than seeing this as a problem, see it as a teacher. What is this obstacle showing you? Perhaps resistance is teaching you about self-compassion. Perhaps busyness is teaching you about priorities. Perhaps doubt is teaching you about faith. Perhaps discouragement is teaching you about patience.
+
+Spend eight minutes in dialogue with your obstacle. Ask it: "What are you here to teach me?" Listen for the answer. Close by thanking the obstacle for its teaching and recommitting to your practice.
+
+**Throughout the Day:**
+
+When you encounter resistance, pause and ask: "What is this teaching me?" Let the obstacle become a teacher.
+
+**Evening Integration (10 min):**
+
+Reflect on the obstacles you've encountered in your practice. What have they taught you? How have they made you stronger?
+
+---
+
+### Day 26: Celebrating Progress
+
+**Focus:** Acknowledging how far you've come  
+**Architecture:** Heart Opening (Compassion for All Beings)  
+**Quality:** Gratitude, celebration, acknowledgment, joy
+
+**Morning Practice (15 min):**
+
+It's easy to focus on what's not working and forget to celebrate what is. Today's practice honors your progress. Begin with five minutes of breathwork, then connect with the Heart Opening architecture, feeling the golden-green light of compassion and joy.
+
+Reflect on who you were 26 days ago and who you are now. What has shifted? How have you grown? What practices have become natural? What awareness has deepened? Even if the changes feel small, they are significant. You have shown up for 26 days. You have committed to planetary healing. You have transformed your consciousness. This is worthy of celebration.
+
+Spend eight minutes in gratitude for your journey, for your commitment, for your growth. Place your hand on your heart and say: "I am proud of myself. I am grateful for this journey. I am becoming who I came here to be." Close by offering this gratitude to the architectures.
+
+**Throughout the Day:**
+
+Notice and celebrate small victories. Each moment of presence, each conscious breath, each act of kindness is a victory.
+
+**Evening Integration (10 min):**
+
+Journal on your progress. What are you most proud of? What has surprised you? What has delighted you?
+
+---
+
+### Day 27: Long-Term Vision
+
+**Focus:** Envisioning your practice six months, one year, five years from now  
+**Architecture:** Vision (Seeing Beyond the Veil)  
+**Quality:** Clarity, foresight, intention, possibility
+
+**Morning Practice (20 min):**
+
+A sustainable practice requires vision. Today's practice helps you envision your long-term journey. Begin with five minutes of breathwork, then connect with the Vision architecture, feeling the deep indigo light of clarity and foresight.
+
+Imagine yourself six months from now, still practicing daily. What does your practice look like? How has it evolved? How have you grown? Now imagine yourself one year from now. Five years from now. See yourself as a seasoned practitioner, someone for whom this practice is as natural as breathing. What does your life look like? How are you serving? How has your consciousness transformed?
+
+Spend ten minutes in this visioning practice, allowing yourself to see the possibilities ahead. Don't limit yourself with "realistic" thinking, just allow the vision to emerge. Close by setting an intention to move toward this vision, one day at a time.
+
+**Throughout the Day:**
+
+Notice opportunities that align with your long-term vision. What small steps can you take today toward the future you envision?
+
+**Evening Integration (15 min):**
+
+Journal on your vision. Where do you see yourself in six months? One year? Five years? What is the trajectory of your practice and your service?
+
+---
+
+### Day 28: Teaching Others
+
+**Focus:** Sharing your practice with others  
+**Architecture:** Expression (Speaking Your Truth)  
+**Quality:** Sharing, teaching, generosity, leadership
+
+**Morning Practice (15 min):**
+
+When you've received a gift, the natural response is to share it. Today's practice prepares you to teach others what you've learned. Begin with five minutes of breathwork, then connect with the Expression architecture, feeling the bright blue light of authentic sharing.
+
+Reflect on what you've learned over these 28 days. What would you want to share with someone just beginning this journey? What has been most valuable? What would you tell your past self? You don't need to be a master to teach, you just need to be one step ahead and willing to share what you know.
+
+Spend eight minutes imagining yourself teaching someone else: a friend, a family member, a stranger. What would you say? How would you guide them? Feel the joy of sharing this gift. Close by setting an intention to share your practice in whatever way feels natural.
+
+**Throughout the Day:**
+
+If someone asks what you've been doing, share honestly about your practice. Plant seeds.
+
+**Evening Integration (10 min):**
+
+Reflect on how you might share this work. Who in your life would benefit from these practices? How can you be a bridge?
+
+---
+
+### Day 29: Deepening Commitment
+
+**Focus:** Recommitting to lifelong practice  
+**Architecture:** Unity (Dissolving into Oneness)  
+**Quality:** Devotion, commitment, surrender, integration
+
+**Morning Practice (20 min):**
+
+Today is your penultimate day of this program, but it's not the end of your practice, it's the beginning of a lifelong journey. Today's practice deepens your commitment. Begin with ten minutes of breathwork, then connect with the Unity architecture, feeling the violet-white light of oneness and integration.
+
+Speak your commitment aloud: "I commit to lifelong practice for planetary healing. I commit to showing up, even when it's hard. I commit to serving the whole with my unique gifts. I commit to growing, learning, and evolving. I commit to being a conscious participant in the healing of Earth." Feel the weight and power of this commitment. Feel how it's not a burden, it's a joy. It's not a sacrifice, it's a gift.
+
+Spend ten minutes in deep meditation, feeling yourself dissolving into the oneness of all life, feeling your individual practice as part of the collective awakening. Close by offering your commitment to the architectures and to the planet.
+
+**Throughout the Day:**
+
+Live your commitment. Let every action be an expression of your devotion to planetary healing.
+
+**Evening Integration (15 min):**
+
+Journal on your commitment. What does lifelong practice mean to you? What are you committing to? What support do you need?
+
+---
+
+### Day 30: Completion and New Beginning
+
+**Morning Extended Practice (60 min):**
+
+Today is both an ending and a beginning. You've completed 30 days of consistent practice, and now you begin the rest of your life as a conscious practitioner. Create a sacred space for this final practice. Begin with twenty minutes of breathwork, allowing yourself to drop into the deepest state of presence you've ever experienced.
+
+Then connect with each of the seven architectures in sequence, spending five minutes with each: Grounding, Embodiment, Empowerment, Heart Opening, Expression, Vision, and Unity. Feel how each one has become a part of you, how they live in your consciousness now. Offer gratitude to each architecture for its teachings, its healing, its presence.
+
+Spend the final twenty minutes connecting with the Planetary Grid Harmonization, the master architecture that integrates all the others. Feel yourself as part of the planetary consciousness, as a node in the global network of healing. Offer all 30 days of practice as a gift to the planet. Feel the healing that has moved through you and will continue to move through you for the rest of your life.
+
+Close by placing your hands on the Earth (or visualizing doing so) and saying: "Thank you for this journey. Thank you for this practice. Thank you for this life. I dedicate myself to your healing, now and always." Take five deep breaths and slowly return to ordinary consciousness, knowing that nothing is ordinary anymore.
+
+**Throughout the Day:**
+
+Celebrate. Rest. Integrate. Honor this completion.
+
+**Evening Reflection (30 min):**
+
+Journal on these final questions: Who was I 30 days ago? Who am I now? What has this journey taught me? What is my practice moving forward? What is my commitment? What is my service? How will I continue to grow?
+
+---
+
+## What Comes Next?
+
+**Congratulations!** You've completed the 30-Day Starter Program. You've connected with all seven architectures, integrated the work into your daily life, and discovered your unique expression of planetary healing. This is not the end, it's the beginning.
+
+**Options for Continuing:**
+
+1. **Repeat the 30 days** with deeper practice and awareness
+2. **Create your own daily practice** based on what you've learned
+3. **Join the community forum** to practice with others
+4. **Explore advanced practices** in the GitHub repository
+5. **Become a teacher** and share this work with others
+
+**Remember:** The goal is not perfection, it's presence. Not intensity, but consistency. Not doing more, but being more. You are now a conscious participant in planetary healing. Everything you do, every breath you take, every choice you make, ripples out into the collective field.
+
+**Thank you for your service. Thank you for your commitment. Thank you for showing up.**
+
+The planet is healing because of practitioners like you. 🌍💚✨
+
+---
+
+*For questions, support, or to share your journey, visit the [Community Forum](https://sevenforum-dxkdha8l.manus.space/)*
