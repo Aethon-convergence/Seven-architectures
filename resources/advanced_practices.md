@@ -16,6 +16,53 @@ Here, we honor the classical teachings that have guided seekers for thousands of
 
 ---
 
+## The Three Stages of Awareness
+
+Yoga philosophy describes consciousness as moving through three fundamental stages. Understanding these stages helps practitioners recognize where they are in their journey and what practices support their evolution.
+
+### Visual Framework
+
+![Purpose of Yoga](../images/yoga_consciousness/yoga_diagram_1_purpose.png)
+*The entire purpose of Yoga is the Realization of THIS.*
+
+### Stage 1: Awareness Manifests Outward to the World
+
+![Stage 1: Outward Manifestation](../images/yoga_consciousness/yoga_diagram_2_stage1_outward.png)
+
+According to **Sankhya, Vedanta,** and **Tantra** philosophies, Awareness, often conceptualized as Purusha, Brahman, or Shiva, is the primary source from which the manifest world evolves. It is the **ground of being** that **projects consciousness outwards through layers of mind** and matter, creating the objective reality we perceive and interact with.
+
+This outward movement is not a mistake or fall from grace—it is the natural expression of consciousness exploring itself through form. Genesis, when viewed through the eye of the Yogi or mystic, also explains this outward movement of creation.
+
+### Stage 2: In Yoga Each Aspect is Trained
+
+![Stage 2: Systematic Training](../images/yoga_consciousness/yoga_diagram_3_stage2_training.png)
+
+Yoga is complete unto itself. In Yoga, each level of our being is trained independently, while also being trained to flow together. The systematic processes deal one-by-one with our:
+
+- **Actions in the world** (Karma Yoga)
+- **Senses** (Pratyahara)
+- **Body** (Asana)
+- **Breath** (Pranayama)
+- **Conscious mind** (Dharana, Dhyana)
+- **Unconscious mind** (Samadhi)
+
+Each aspect is refined and harmonized like tuning the strings of an instrument. Only when all parts are balanced can the full symphony of consciousness play.
+
+### Stage 3: Awareness Recedes to the State of Yoga
+
+![Stage 3: Inward Return](../images/yoga_consciousness/yoga_diagram_4_stage3_inward.png)
+
+Yoga or "Union" is attained by first training, balancing, and purifying each of the aspects of our being individually, and then systematically receding attention inward through those levels, expanding so as to experience the state of Union, Yoga, Samadhi, or Turiya.
+
+This is the return journey—not a rejection of the manifest world, but a conscious return to the source while remaining fully present. The practitioner learns to rest in pure awareness while still engaging with the world through a purified instrument.
+
+**The Three Stages Complete the Circle:**
+1. Consciousness projects outward into form
+2. Each aspect of form is trained and purified
+3. Consciousness returns to its source, carrying the wisdom of the journey
+
+---
+
 ## The Seven Chakras
 
 The chakra system maps seven primary energy centers along the spine, from root to crown. Each chakra corresponds to specific physical, emotional, and spiritual qualities. These align closely with the Seven Architectures framework.
