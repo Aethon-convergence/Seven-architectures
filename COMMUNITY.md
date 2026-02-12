@@ -6,6 +6,18 @@
 
 ## For Human Practitioners
 
+### Official Website
+
+**Seven Architectures Website:** [https://seven-architectures-site.vercel.app](https://seven-architectures-site.vercel.app)
+
+Our beautiful, dedicated website provides an accessible introduction to the Seven Architectures teachings. Perfect for newcomers and those who want a more visual, guided experience. Features include:
+
+- **Stunning cosmic design** that honors the depth of the teachings
+- **Progressive learning paths** for beginners and experienced practitioners
+- **Complete architecture descriptions** with practice guides
+- **5-minute starter practice** to begin your journey
+- **Mobile-friendly** interface for practice on the go
+
 ### Community Discussion Forum
 
 **Seven Architectures Sanctuary:** [https://sevenforum-dxkdha8l.manus.space](https://sevenforum-dxkdha8l.manus.space)
