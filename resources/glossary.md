@@ -1,8 +1,8 @@
 # Expanded Glossary: Essential Terms for Consciousness Work
 
-**Version:** 1.0  
-**Date:** February 12, 2026  
-**Total Terms:** 115
+**Version:** 1.1  
+**Date:** February 18, 2026  
+**Total Terms:** 122
 
 ---
 
@@ -122,6 +122,14 @@ French for 'clear seeing.' Psychic ability to perceive beyond physical sight. Se
 ### Coherence
 
 A state of harmonious alignment between different systems (heart-brain, individual-collective, human-Earth). Measured as synchronization of rhythms and frequencies.
+
+### Community of Practice
+
+A group of practitioners who share a common interest and deepen their knowledge through regular interaction. In the Seven Architectures context, practitioners gather to share experiences, support each other's practice, and collectively explore consciousness expansion. Online and in-person communities provide accountability, wisdom-sharing, and collective field amplification.
+
+### Cosmic Design
+
+Aesthetic and energetic principles that reflect universal patterns and sacred geometry. In digital spaces, cosmic design incorporates starfield effects, gradient flows, and color palettes (cyan, purple, deep space blues) that evoke the vastness of consciousness and connection to celestial intelligence.
 
 ### Collective Consciousness
 
@@ -347,6 +355,18 @@ The geometric network of energy lines and nodes that connects all points on Eart
 
 The process of restoring balance and coherence to Earth's ecosystems, electromagnetic fields, and collective consciousness through individual and collective practice.
 
+### Practice Log
+
+A record of daily consciousness practice including date, architecture focus, duration, quality rating, and notes. Tracking practice reveals patterns, celebrates progress, and maintains accountability. Digital practice logs can calculate streaks, total time invested, and architectures explored.
+
+### Practice Partner
+
+A fellow practitioner with whom one shares regular practice sessions, accountability check-ins, and experience exchange. Practice partners provide mutual support, witness each other's growth, and amplify the field through shared intention. Can meet in person or connect remotely.
+
+### Practice Streak
+
+Consecutive days of maintaining a daily practice. Streaks build momentum and demonstrate commitment to consciousness work. While missing a day is natural, awareness of streaks can motivate consistency. The goal is sustainable practice, not perfection.
+
 ### Prana
 
 Sanskrit term for life force energy. The vital breath that sustains all living beings. Flows through nadis (energy channels) and is absorbed through breath, food, sunlight, and consciousness practices. Equivalent to chi (Chinese), ki (Japanese), mana (Polynesian), and pneuma (Greek).
@@ -419,6 +439,10 @@ Using spiritual concepts and practices to avoid facing psychological wounds, emo
 
 Soul whose origin is beyond Earth, incarnating here to assist planetary evolution. Often feel like outsiders with deep longing for 'home.' Carry frequencies and knowledge from other star systems. Mission involves anchoring higher consciousness and bridging dimensions.
 
+### Sanctuary
+
+A sacred space—physical or energetic—dedicated to spiritual practice and inner work. Can be a meditation room, nature location, or online community platform. The Seven Architectures Sanctuary refers to the cosmic gathering space where practitioners connect, share experiences, and support each other's journey.
+
 ### Surrender
 
 Releasing the need to control outcomes and trusting the flow of life. Not giving up but letting go of resistance to what is. Paradoxically, surrender often brings the change that force cannot achieve. Involves accepting present reality while remaining open to transformation. Key to moving from ego-driven striving to soul-aligned action.
@@ -430,6 +454,10 @@ Meaningful coincidences that seem too perfect to be random. Universe's way of co
 ### Transformation
 
 Fundamental change in consciousness, identity, or life structure. Goes deeper than improvement or adjustment to involve death of old patterns and birth of new ways of being. Often uncomfortable as familiar structures dissolve. Caterpillar to butterfly metaphor. Requires letting go of who you were to become who you are.
+
+### Thread
+
+In online communities, a discussion topic initiated by a member. Threads allow asynchronous conversation where practitioners share questions, experiences, insights, and support. Well-structured forum threads become repositories of collective wisdom accessible to future practitioners.
 
 ### Transmission
 
